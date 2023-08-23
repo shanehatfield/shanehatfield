@@ -1,1 +1,1 @@
-### BIT Student at Virginia Tech
+BIT Student at Virginia Tech
